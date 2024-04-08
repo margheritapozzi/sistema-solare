@@ -6,3 +6,6 @@ apprezzate i nomi dei colori plz
 Taylor Swift <3<3<3<3<3<3<3<3<3
 che merda Java
 adesso vado a dormire che ho finito l'utilizzo massimo di neuroni che ho a disposizione in un giorno
+
+Hai mai considerato il suicidio?
+ps: Taylor Swift merda, Harry styles merda.
