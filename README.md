@@ -9,5 +9,5 @@ adesso vado a dormire che ho finito l'utilizzo massimo di neuroni che ho a dispo
 
 Hai mai considerato il suicidio?
 ps: Taylor Swift merda, Harry styles merda.
-david bowie merda :)
+marghe sei una donna
 https://github.com/techwithtim/Python-Planet-Simulation/blob/main/tutorial.py
