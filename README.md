@@ -10,6 +10,8 @@ adesso vado a dormire che ho finito l'utilizzo massimo di neuroni che ho a dispo
 Hai mai considerato il suicidio?
 ps: Taylor Swift merda, Harry styles merda.
 marghe sei una donna
+tua mamma
+
 https://github.com/techwithtim/Python-Planet-Simulation/blob/main/tutorial.py
 
 swcarpentry.github.io/python-novice-gapminder/files/python-novice-gapminder-data.zip
