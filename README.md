@@ -11,3 +11,5 @@ Hai mai considerato il suicidio?
 ps: Taylor Swift merda, Harry styles merda.
 marghe sei una donna
 https://github.com/techwithtim/Python-Planet-Simulation/blob/main/tutorial.py
+
+swcarpentry.github.io/python-novice-gapminder/files/python-novice-gapminder-data.zip
